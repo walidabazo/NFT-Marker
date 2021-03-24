@@ -2,7 +2,13 @@
 NFT Marker working in windows without install node.js  
 
 # Download V1 windows 
- <a href="https://edafait.com/NFT_Marker_Creator-win32-x64.rar" target="_blank">Download Windows 7, 10 64</a>
+ <a href="https://shorturl.edafait.com/?laZqzAt" target="_blank">Download Windows 7, 10 64</a>
+
+## Can be start web Augmented reality
+Https://Webxr.edafait.com
+
+## Good Company hosting and low price VPN 
+https://shorturl.edafait.com/?fZVHLor 
 
 ## YouTube Channel Wonder developer To Subscriber 
-https://youtube.com/channel/UCNJVG9_IebHe-NF-K_Y8Grw?sub_confirmation=1
+https://shorturl.edafait.com/?zuS4kvW
